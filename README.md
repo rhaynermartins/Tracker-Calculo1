@@ -1,1 +1,0 @@
-# Tracker-Calculo1
